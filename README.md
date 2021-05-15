@@ -1,2 +1,2 @@
-# see details
-https://njshixing.github.io/happybirthday/
+# See Details
+http://njshixing.top/koni/
